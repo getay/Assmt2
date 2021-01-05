@@ -1,5 +1,6 @@
 Excuse me for reversing the name of the assignment and by we are not understandig 
-the quation.!!
+the qeuation.!!
+now this is assignment 1.
 
 
 
